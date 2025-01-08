@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Ikhsan Alifian, [ikhsanalifian.com](https://oo.or.id).
-* * Greesella Adhalia, [Linkedin](https://www.jkt48.com/).
+* Greesella Adhalia, [Linkedin](https://www.jkt48.com/).
